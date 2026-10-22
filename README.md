@@ -1,1 +1,1 @@
-![@Zubin1398's GitHub Stats](https://devquest-mu.vercel.app/card/Zubin1398.svg?template=polyglot&theme=dracula&accent=41f8fb&title=-Inet)
+<img width="826" height="1000" alt="Zubin1398-github-cards (1)" src="https://github.com/user-attachments/assets/5a17e888-e2b8-4167-94ae-157ecf3078dd" />
