@@ -7,17 +7,17 @@
 📍 **Где получить:**
 
 **Пункт выдачи OZON**  
-г. Симферополь, ул. Астраханская, 77
+**г. Симферополь, ул. Астраханская, 77**
 
 📦 **Для получения подарков покажи сотруднику пункта выдачи штрихкоды ниже:**
 
 **Первый подарок 🎁**
 
-<img width="1242" height="741" alt="image" src="https://github.com/user-attachments/assets/6cc96249-f219-4f16-acaf-352f646ae15e" />
+<img width="1200" height="720" alt="image" src="https://github.com/user-attachments/assets/6cc96249-f219-4f16-acaf-352f646ae15e" />
 
 **Второй подарок 🎁**
 
-<img width="1077" height="576" alt="image" src="https://github.com/user-attachments/assets/8255bf2f-6c61-497d-8450-6a6dc52bc1f3" />
+<img width="1200" height="720" alt="image" src="https://github.com/user-attachments/assets/8255bf2f-6c61-497d-8450-6a6dc52bc1f3" />
 
 ---
 
