@@ -1,1 +1,26 @@
-<img width="300" height="380" alt="Zubin1398-github-cards (1)" src="https://github.com/user-attachments/assets/5a17e888-e2b8-4167-94ae-157ecf3078dd" />
+# 🎁 Твой подарок уже ждёт тебя!
+
+С днём рождения! 🥳
+
+Подарок не терпится попасть к тебе в руки, поэтому осталось только забрать его!
+
+📍 **Где получить:**
+
+**Пункт выдачи OZON**  
+г. Симферополь, ул. Астраханская, 77
+
+📦 **Для получения подарков покажи сотруднику пункта выдачи штрихкоды ниже:**
+
+**Первый подарок 🎁**
+
+<img width="1242" height="741" alt="image" src="https://github.com/user-attachments/assets/6cc96249-f219-4f16-acaf-352f646ae15e" />
+
+**Второй подарок 🎁**
+
+<img width="1077" height="576" alt="image" src="https://github.com/user-attachments/assets/8255bf2f-6c61-497d-8450-6a6dc52bc1f3" />
+
+---
+
+💌 Надеюсь, подарки тебя порадуют!
+
+**С ДР! ❤️**
